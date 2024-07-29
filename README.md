@@ -3,9 +3,9 @@ Assistir Filme O Reino do Planeta dos Macacos (O Reino do Planeta dos Macacos) C
 
 | DVD (Blu-ray) | 4K UHD | HD-2080p | HD-720p | SD-480p | MP4 |
 
- ### **[➤ ASSISTIR AGORA ✅➤➤ O Reino do Planeta dos Macacos (O Reino do Planeta dos Macacos) (2024) filme HD](https://dailynewsking.com/pt/movie/653346/?github)**
+ ### **[➤ ASSISTIR AGORA ✅➤➤ O Reino do Planeta dos Macacos (2024) filme HD](https://dailynewsking.com/pt/movie/653346/?github)**
 
- ### **[➤➤ Baixar ✅➤➤ O Reino do Planeta dos Macacos (O Reino do Planeta dos Macacos) (2024) filme HD](https://dailynewsking.com/pt/movie/653346/?github)**
+ ### **[➤➤ Baixar ✅➤➤ O Reino do Planeta dos Macacos (2024) filme HD](https://dailynewsking.com/pt/movie/653346/?github)**
 
 [![efnlkejfbejkf](https://github.com/user-attachments/assets/96ecbf4e-3cab-4fe7-b878-443eb7a11ae4)](https://dailynewsking.com/pt/movie/653346/?github)
 
